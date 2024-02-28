@@ -7,6 +7,8 @@
 - ✍️ Write me at **https://t.me/NatalyaEvg**
 
 - ❤️ All of my projects are available at https://github.com/Natalya55555/Portfolio
+  
+- 👉 Effective communication is the key to success!
 
 
 <h3 align="left">Languages and Tools:</h3>
